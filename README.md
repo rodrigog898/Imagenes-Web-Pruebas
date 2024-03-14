@@ -5,6 +5,7 @@ Imagenes de Diseños Web  que e creado
 
 ![image](https://user-images.githubusercontent.com/82234888/172296459-ec455da8-8ebf-4920-a116-bfe3508d15b5.png)
 
+![correo](https://github.com/rodrigog898/Imagenes-Web-Pruebas/assets/82234888/0de701d2-8ec2-4471-9250-954976749a55)
 
 ![image](https://user-images.githubusercontent.com/82234888/172296542-4cc75221-a95c-4953-83ef-644c2de0da0e.png)
 ![mapa de actores](https://github.com/rodrigog898/Imagenes-Web-Pruebas/assets/82234888/00a6ce7b-d177-43fe-bd93-8975c2c5e98b)
