@@ -21,3 +21,5 @@
 ![ROCHA_BLANCO](https://github.com/rodrigog898/Imagenes-Web-Pruebas/assets/82234888/0a1fb94f-609a-4f36-93f3-970f914948b4)
 ![Announcement](https://github.com/rodrigog898/Imagenes-Web-Pruebas/assets/82234888/70644cf1-1b74-4299-8b74-5259e2b6de7f)
 ![unnamed](https://github.com/user-attachments/assets/67124679-dd2e-4076-8be4-0f1ccebe9311)
+
+![image](https://github.com/user-attachments/assets/ed8a04a3-e809-45ec-b695-c0e0021bae81)
