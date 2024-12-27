@@ -22,3 +22,14 @@
 ![unnamed](https://github.com/user-attachments/assets/67124679-dd2e-4076-8be4-0f1ccebe9311)
 
 ![image](https://github.com/user-attachments/assets/ed8a04a3-e809-45ec-b695-c0e0021bae81)
+
+
+
+![titulo](https://github.com/user-attachments/assets/81db5782-8d6a-42fd-9bdd-85121ee44308)
+![fecha](https://github.com/user-attachments/assets/6ab6edff-21d2-4a8e-8d56-f5c8c071503c)
+![apiux logo abajo](https://github.com/user-attachments/assets/eb22db29-a2bc-46af-9039-b09b7579215c)
+![sorpresas](https://github.com/user-attachments/assets/64423860-5904-4f68-bfcb-315c43757bbb)
+![premiacion](https://github.com/user-attachments/assets/b922b164-3036-44cc-a2cd-7f629e0c81b8)
+![desafios](https://github.com/user-attachments/assets/f92e1b49-f1d0-43e4-b206-85f34a001244)
+![recap](https://github.com/user-attachments/assets/a4aedabb-bf5a-41b9-b5f9-858315282eb3)
+![lugar](https://github.com/user-attachments/assets/f384f521-e1c8-4889-90cb-2e6dd3a7bb07)
